@@ -1,4 +1,4 @@
-# 
+# instant bot de negociação Deribit executor é o melhor bot de negociação Deribit executor com alavancagem automática e grid trading. Seguro, confiável e otimizado para estratégias
 
 
 
